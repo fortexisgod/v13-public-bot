@@ -1,4 +1,2 @@
-# v13-public-bot
-V13 Publi Sunucularda Kullandığım Projem.
-**100 Stardan Sonra Paylaşacağım.**
-Görselleri kısa sürede ekleyeceğim.
+YAKINDA (100 STAR)
+** 100 Stara Paylaşırım. Görselleri Yakın da ekleyeceğim. **
